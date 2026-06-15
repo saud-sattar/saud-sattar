@@ -23,7 +23,6 @@ Operating Systems: I use Arch btw
 
 A few things about me:
 
-- I play League of Legends (ADC)
 - Bouldering
 - I can solve a Rubik's Cube in under 30 seconds
 - I like anime (One Piece is GOATed)
